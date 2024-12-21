@@ -1,4 +1,4 @@
-Welcome to No Man's Trades! a trading/delivery service for No Man's Sky! whether you're after a custom-made ship, rare items, resources or upgrade modules, we have it all! to use our service, please join the Discord server, ```https://discord.gg/4rRU6E58SA```, for further information if you're interested. Prices will be displayed below!:
+Welcome to No Man's Trades! a trading/delivery service for No Man's Sky! whether you're after a custom-made ship, rare items, resources or upgrade modules, we have it all! to use our service, please read the prices below carefully, no refunds after purchase
 
 Custom Starship, except for sentinel/robot and alien/living - C-Class = $10, higher class = +$5 per tier
 
